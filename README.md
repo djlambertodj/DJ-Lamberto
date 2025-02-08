@@ -8,4 +8,5 @@ https://commons.wikimedia.org/wiki/File:DeeJay_Lamberto.jpg
 https://upload.wikimedia.org/wikipedia/commons/b/b8/DJ_Lamberto_djset.jpg
 https://education.apple.com/resource/250013369
 https://www.flickr.com/people/djlamberto/
-https://en.wikipedia.org/wiki/User:DJLambertodiscjockeys![DeeJay Lamberto (3)](https://github.com/user-attachments/assets/a3026f44-c34e-441b-a047-ca3928730eae)
+https://en.wikipedia.org/wiki/User:DJLambertodiscjockeys
+(https://github.com/user-attachments/assets/a3026f44-c34e-441b-a047-ca3928730eae)

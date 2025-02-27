@@ -2,6 +2,10 @@ DJ Lamberto è un dj,disc jockey,remixer internazionale specializzato in musica 
 Biografia DJ Lamberto di genitori di origini Lombarde lavora come Fotomodello di moda successivamente Lamberto Comincia a fare il disc jockey.Inizia la sua carriera in diverse discoteche tra cui ilParadiso di Rimini,il Pascià,il Prince di Riccione ed altre ancora. Si trasferisce a Ibiza isole Baleari,Spagna e inizia a collaborare con djs di livello internazionale.Continua a lavorare presso le discoteche di Ibiza Spagna,in altri locali.Attualmente mi sono specializzato in Luxury events,Lounge Bar-Restaurant,Roof Garden,Resort,Beach Party,Party,Locali in Italia come in tutta Europa.
 o![Djlamberto](https://github.com/user-attachments/assets/dc126f11-06c0-4a3f-8118-f4eab3ef2465)
 https://djlamberto.jimdosite.com/
+https://x.com/djlamberto/bio
+https://djlamberto.jimdosite.com/biografia/
+https://www.youtube.com/@djlamberto  
+https://www.linkedin.com/in/djlamberto/ 
 https://x.com/djlamberto
 https://www.facebook.com/djlamberto 
 https://www.instagram.com/djlambertodj/

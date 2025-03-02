@@ -24,4 +24,5 @@ https://www.threads.net/@djlambertodj
 https://www.imdb.com/user/ur186902581/?ref_=nv_usr_prof_2
 https://www.reddit.com/user/djlambertodj/m/dj_lamberto/
 https://orcid.org/0009-0000-7549-8323
-(https://github.com/user-attachments/assets/a3026f44-c34e-441b-a047-ca3928730eae)
+https://github.com/user-attachments/assets/a3026f44-c34e-441b-a047-ca3928730eae)
+https://www.crunchbase.com/organization/djlamberto

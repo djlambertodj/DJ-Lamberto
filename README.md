@@ -8,15 +8,11 @@ https://www.linkedin.com/in/djlamberto/
 https://x.com/djlamberto
 https://www.facebook.com/djlamberto 
 https://www.instagram.com/djlambertodj/
-https://commons.wikimedia.org/wiki/File:DJ_Lamberto_con_cuffie.jpg
-https://commons.wikimedia.org/wiki/File:DeeJay_Lamberto.jpg
-https://upload.wikimedia.org/wikipedia/commons/b/b8/DJ_Lamberto_djset.jpg
 https://education.apple.com/resource/250013369
 https://www.flickr.com/people/djlamberto/
 https://www.youtube.com/@djlamberto  https://www.linkedin.com/in/djlamberto/
 https://it.amazonforum.com/s/profile/0056Q00000BYZU3QAP?t=1739392471470
 https://musicbrainz.org/artist/cd16f2b6-c1b3-4436-81e0-5a54e67feeb8
-https://en.wikipedia.org/wiki/Draft:Dee_Jay_Lamberto
 https://www.crunchbase.com/person/lamberto-moscas
 https://www.tiktok.com/@djlambertodjs
 https://www.threads.net/@djlambertodj

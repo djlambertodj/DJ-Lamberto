@@ -25,4 +25,9 @@ https://www.shazam.com/it-it/song/1814911026/look
 https://djlamberto.jimdosite.com/biografia/
 https://x.com/djlamberto
 ![Djlamberto](https://github.com/user-attachments/assets/dc126f11-06c0-4a3f-8118-f4eab3ef2465)
-![Lamberto Mosca](https://github.com/user-attachments/assets/3cecb998-2eaa-43b1-a4a3-4293da265d5b)
+![DJ Lamberto smoking con occhiali](https://github.com/user-attachments/assets/8ccec0a1-22dd-4a89-938e-6a4a54331fd0)
+![DJ Lamberto in smoking](https://github.com/user-attachments/assets/95fd4bbb-b05f-4a7d-9520-e27610331893)
+![dj lamberto giacca e cravatta](https://github.com/user-attachments/assets/c1f81863-0d18-45cd-beb3-d30116a39c71)
+![dj lamberto giacca e cravatta intero](https://github.com/user-attachments/assets/662f0c36-0d9f-4a8e-b3c9-3dbdabed1154)
+![DJ Lamberto con cuffie](https://github.com/user-attachments/assets/04d24ea1-085b-40d5-9919-e4d084961a3b)
+

@@ -24,6 +24,7 @@ https://www.last.fm/music/DJ+Lamberto
 https://www.shazam.com/it-it/song/1814911026/look
 https://djlamberto.jimdosite.com/biografia/
 https://x.com/djlamberto
+
 ![Djlamberto](https://github.com/user-attachments/assets/dc126f11-06c0-4a3f-8118-f4eab3ef2465)
 ![DJ Lamberto smoking con occhiali](https://github.com/user-attachments/assets/8ccec0a1-22dd-4a89-938e-6a4a54331fd0)
 ![DJ Lamberto in smoking](https://github.com/user-attachments/assets/95fd4bbb-b05f-4a7d-9520-e27610331893)
